@@ -1,4 +1,4 @@
-#  
+#  best Scripts for survive lava for brainrots is the best survive lava for brainrots Script, featuring infinite resources and auto-sell. Safe and
 
 
 
